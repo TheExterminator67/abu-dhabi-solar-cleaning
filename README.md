@@ -1,1 +1,0 @@
-# abu-dhabi-solar-cleaning
